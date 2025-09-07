@@ -1,4 +1,4 @@
-Let's begin! #Changed Locally
+Let's begin!
 Ingredients
 DOUGH
 ¾ cup (180 grams) milk (whole milk or 2% preferred)
